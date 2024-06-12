@@ -1,16 +1,21 @@
-## Hi there 👋
+# 🐾 ⋆ BYI 🐾 ⋆ 
 
-<!--
-**Nightofthewerehog/Nightofthewerehog** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+─── ⋆⋅☆⋅⋆ ── 
+- It takes me a while to warm up 2 new people, so im sorry if im dry when we first talk!! 
+- I'm apart of a DID sys so just be respectful that sometimes my pony is also my source !!
+- feel free to add my discord, just lmk first !
 
-Here are some ideas to get you started:
+# 🐾 ⋆ INTTT 🐾 ⋆ 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+─── ⋆⋅☆⋅⋆ ── 
+- IF U LIKE SONICC + BOLT + MTL + MLP (these are mainly the fandoms i have ponies w ! ) 
+- IF U LIKE SONADOW, SURGEAMY, WHISPTANGLE, AMYBLAZE, SONKNUXADOW (ill add more when i remember)
+- (DONT SPEC NEED TO FOLLOW THIS ANY INT IS OKAY UNLESS ITS ON MY DNI)
+
+# 🐾 ⋆ DNI 🐾 ⋆ 
+
+─── ⋆⋅☆⋅⋆ ── 
+- if u like any illegal ship + shadamy, sonamy(not my thing)
+- basic dni 
+- if u hate on my interests 
+

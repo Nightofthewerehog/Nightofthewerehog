@@ -15,7 +15,7 @@
 # 🐾 ⋆ DNI 🐾 ⋆ 
 
 ─── ⋆⋅☆⋅⋆ ── 
-- if u like any illegal ship + shadamy, sonamy(not my thing)
+- if u like any illegal ship + shadamy 
 - basic dni 
 - if u hate on my interests 
 

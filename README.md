@@ -8,7 +8,7 @@
 # 🐾 ⋆ INTTT 🐾 ⋆ 
 
 ─── ⋆⋅☆⋅⋆ ── 
-- IF U LIKE SONICC + BOLT + MTL + MLP + LIFE IS STRANGE (these are mainly the fandoms i have ponies w ! ) 
+- IF U LIKE SONICC + BOLT + MTL + MLP + LIFE IS STRANGE + PJSK + VBROS (these are mainly the fandoms i have ponies w ! ) 
 - IF U LIKE SONADOW, SURGEAMY, WHISPTANGLE, AMYBLAZE, SONKNUXADOW (ill add more when i remember)
 - (DONT SPEC NEED TO FOLLOW THIS ANY INT IS OKAY UNLESS ITS ON MY DNI)
 

@@ -9,13 +9,13 @@
 
 ─── ⋆⋅☆⋅⋆ ── 
 - IF U LIKE SONICC + BOLT + MTL + MLP + LIFE IS STRANGE + PJSK + VBROS (these are mainly the fandoms i have ponies w ! ) 
-- IF U LIKE SONADOW, SURGEAMY, WHISPTANGLE, AMYBLAZE, SONKNUXADOW, MIZUENA, PRICEFIELD, AMBERPRICE, TWIPIE (ill add more when i remember)
+- IF U LIKE SONADOW, SURGEAMY, WHISPTANGLE, AMYBLAZE, SONKNUXADOW, MIZUENA, PRICEFIELD, AMBERPRICE, TWIPIE, TWIDASH (ill add more when i remember)
 - (DONT SPEC NEED TO FOLLOW THIS ANY INT IS OKAY UNLESS ITS ON MY DNI)
 
 # 🐾 ⋆ DNI 🐾 ⋆ 
 
 ─── ⋆⋅☆⋅⋆ ── 
-- if u like any illegal ship + shadamy 
+- if u like any illegal ship 
 - basic dni 
 - if u hate on my interests 
 
